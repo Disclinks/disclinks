@@ -1,4 +1,4 @@
-##Lol dont even try to steal the code
+# Lol dont even try to steal the code
 
 # Disclinks.tk! 
 
